@@ -196,7 +196,7 @@ Nᴀᴍᴇ - {}"""
 <b>🅢🅘🅩🅔 - {file_size}</b>
 
 <b>•────•────────•────•
-🔆𝗥ᴇǫᴜᴇsᴛ 𝗚ʀᴏᴜᴘ:[ᴄʟɪᴄᴋ ʜᴇʀᴇ](https://t.me/+g8NmLsLRM8llYWVl)
+🔆𝗥ᴇǫᴜᴇsᴛ 𝗚ʀᴏᴜᴘ:[ᴄʟɪᴄᴋ ʜᴇʀᴇ](https://t.me/+wSMAovOIqANiNjRl)
 🌟𝗠ᴏᴠɪᴇs 𝗖ʜᴀɴɴᴇʟ:[ᴄʟɪᴄᴋ ʜᴇʀᴇ](https://t.me/+8T7II0Ioa9BjOGM9)
 •────•────────•────•
 ⚙𝗔ᴅᴠɪsᴏʀ :[𝐀𝐭𝐡𝐢𝐳 𝟐𝐊࿐](https://t.me/Itsking_45)
